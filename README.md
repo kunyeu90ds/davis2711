@@ -1,4 +1,4 @@
-# XWorm V5.6 Edition
+# XWorm V6.0 Edition
 
 <b>
 
