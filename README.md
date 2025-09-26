@@ -248,6 +248,9 @@ This Project Contains XWorm V6.0 FULL CRACK
 Size : 49.0 KB [Full Features]
 
 Best Software Quality Ever
+<img width="1002" height="836" alt="Capture3" src="https://github.com/user-attachments/assets/d5b9c1a4-1f2f-47db-a10e-2dcc44f0823b" />
+<img width="1150" height="692" alt="Capture1" src="https://github.com/user-attachments/assets/b8c28d27-d703-4fa1-ad9e-b70baa743b70" />
+
 
 </b>
 
